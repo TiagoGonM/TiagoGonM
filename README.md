@@ -1,4 +1,4 @@
-If you wanna see my personal proyects you can go [here](https://github.com/Termantita).
+If you wanna see my personal proyects and other things you can go [here](https://github.com/Termantita).
 
 
 
